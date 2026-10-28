@@ -1,1 +1,1 @@
-Goonuj is gooning
+Goonuj stop gooning
